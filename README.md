@@ -4,7 +4,7 @@
 Builder of things.
 
 ## Personal interests:
-- Calisthenics
-- Myspace Metalcore music.
-- Vegan food
-- Dark Souls
+- Calisthenics 💪
+- 2000's Metalcore 🎸
+- Eating clean 🌱
+- Dark Souls 🎮
